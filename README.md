@@ -57,3 +57,8 @@ I love to bake and I tend to do for various holidays or seasons. As I have done 
 
 # Notes
 
+When cutting the log of the cinnamon roll dough (with the filling withing the roll) into 14 pieces, you can use plain dental floss to make perfect cuts without spilling any of the filling out. I don't recommend using all of the butter as it becomes overpowering and prominent in the final product, however, if you like more butter than go ahead and follow the normal recipe. I personally use about 1/2 or 3/4 of the butter ingredient for the filling. Depending on how you like your cinnamon rolls, you can bake for a little longer to have a crunchier exterior and a soft and fluffy interior. Also, after the cinnamon rolls are completed, they are very hot and should be set to cool down for a couple of minutes. I also knead the dough for about 5 minutes longer than the recipe calls for. This seems to make the dough more fluffy and stretchy when I make them. Finally, when placing the rolls in the pan for the oven, I use PAM spray to make sure the rolls to melt onto and get stuck to the bottom of the pan.
+
+# Inspiration 
+
+> Tasty - Original Video on Youtube and their [Website](https://vid.tasty.co/output/25812/mp4_1280X720/1488912074)
